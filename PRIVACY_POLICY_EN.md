@@ -65,7 +65,7 @@ In the event of significant changes to the policy (e.g., integrating new AI serv
 
 ## 10. Contact Information
 
-For questions regarding privacy: **etherea.app@icloud.com**
+For questions regarding privacy: **snicoby.apple@gmail.com**
 
 ---
 
